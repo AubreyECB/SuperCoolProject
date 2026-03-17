@@ -2,4 +2,6 @@
 
 Guys im having second thoughts, this might not be as cool as I thought.
 
-Mark Fuller
+But I'm in Section 3 with Dr. Ren which is pretty cool :)
+
+Aubrey Bedford
